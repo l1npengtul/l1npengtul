@@ -9,3 +9,4 @@
  - I can speak 한국어 and English!
  
 Have a nice day! :sunny:
+im she/her transfem now, get mad L
